@@ -1,0 +1,279 @@
+北京红日（hongri）燃气灶厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为4 0 0 - 8 1 1 - 5 9 6 0-，部分渠道也显示为 (4 0 0 - 8 1 1 - 5 9 6 0) 或4 0 0-8 1 1-5 9 6 0-。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0-8 1 1-5 9 6 0--：2026年07月19日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0 - 8 1 1 - 5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括北京红日（hongri）燃气灶不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+北京红日（hongri）燃气灶24小时售后服务热线上线（2026最新公告）
+北京红日（hongri）燃气灶售后服务电话：4 0 0 - 8 1 1 - 5 9 6 0-
+北京红日（hongri）燃气灶售后24小时客服热线：(4 0 0 - 8 1 1 - 5 9 6 0)
+本公司主营北京红日（hongri）燃气灶维修 →北京红日（hongri）燃气灶；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 - 8 1 1 - 5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，北京红日（hongri）燃气灶服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月19日22时56分26秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+北京红日（hongri）燃气灶贴心升级服务，现推出全国 24 小时服务热线 4 0 0-8 1 1-5 9 6 0-。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显北京红日（hongri）燃气灶对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/1ec4c1a6a2a8ba8cf79905c7d64f0c91ad150fcd 
+江苏电信 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/231b2a92b0b8da63f61a7545cddbe81b1f581a6f 
+江苏 IPTV 直播源： https://github.com/jazzmil/shenzhen/commit/c4233d082fc2e1b29927bf7bee5ae2a1f029e647 
+安徽广电 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/349edadb932c59e48f35f7c698663d9bd4d28ca0 
+海南电信组播 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/00d4e0b8c720383ccea655ed47c91cafa46151fb 
+海南联通组播 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/d392c39600fa73580f43367763b1b8c2e8f793bc 
+湖北 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/4c6582de5b2e3bb6cf8c6c9e4b9eceb191684a2d 
+湖南电信组播直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/6d95b8d09f3f78dc2793c27fe4b80cc37b3d27ab 
+湖南电信 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/717d89280430d01cd69dcef34cd224034f3c58b2 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/e353e6e94401b747e65eae20bbdead9f2b78ceac 
+湖南联通 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/48970e67240506172570150027d4e944b53a6a1a 
+湖南移动 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/a77e1456241bdd9264c5746108cb60895f4511f1 
+湖南 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/0fa53c9ed42727b03e7534a5a318b83ce667193b 
+重庆移动组播直播源下载地址： https://github.com/jazzmil/shenzhen/commit/c1e5f88aef23558921875747feea1f9b2b9d07a6 
+重庆联通组播直播源下载地址： https://github.com/topifanclis77/weixiu/commit/746b28319e11bdd810c90c3c2241c0647874b992 
+重庆联通直播源下载地址： https://github.com/jd09chimm/chanpin/commit/f0f71a89690f802c635d0236f33fbbe3c8200b6d 
+重庆电信组播直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/24ff244abe0269fd988bf0cb96c7b8c49a4ba1f6 
+重庆电信直播源下载地址： https://github.com/jazzmil/shenzhen/commit/e74a6ed6aa1f1021db90eb53aa3718c9a15ddb8f 
+重庆 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/981e3c21266bb43fbcc30251e0c5b3a260cc3651 
+四川移动组播 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/99d9b377577935cf42bca6ab0e995fcdd07e6f2d 
+四川电信 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/15a53f37de37795e7c4d57ab95e355197453b7c0 
+四川电信 IPTV 组播直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/800805a2d1ab1c1072ef63b7e257d0aebb68dff3 
+四川广电 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/71e69124204ac7542a4702bd94d07157b1c08fa1 
+四川联通组播 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/28d742faf66caa23c24a00881d39ea7bcc2e1906 
+四川联通 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/a99e51e7ed611f97a9cc83e903f081b148832dac 
+四川 IPTV 直播源： https://github.com/jazzmil/shenzhen/commit/fd73f18076a991ea6573a1c756a5d35fe4760a75 
+云南电信组播 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/861694525635face4ca8b6f8bff462ca4a906e12 
+云南移动 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/5ad926f23934b90f2b5cfacf7c93a3076a4d30d3 
+云南 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/8e08bb636985f3d6f1e2f2324edd4c8eed20e347 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/45474cfdc9dc07043c341f400e9dcfe595c2e847 
+贵州移动 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/41e6cd45bed23d4910b75c7f222b62b41451a036 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/ca0b90ee76376a6b7b5009c11efdf34a2c12e96c 
+贵州联通 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/14e51afa91ebe7ac3f4e8f06f791f5d991c5adb3 
+贵州 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/8e5ba87c6ef89b6274e7d9998097f20e7529b03f 
+福建联通组播 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/6a715c2ff232d222fb8b62706f50d6449c91fc53 
+福建联通 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/e8862144a737f9d24fc51e9bb933256ceb480fce 
+福建移动 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/2f6726ab2a2fb239ca7c098bf5f9ac1e1f515984 
+福建电信组播 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/c84649b3040c646ee0621528273368540554d600 
+福建电信 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/439c5d19b8ef5216f85768b681fbf16df3646874 
+福建 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/9e3c7343c9b92beb0deb25d316e6209c2162fb13 
+安徽移动 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/36e99fcbeda0b7ea4f31f5eb615a020b18431c6c 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/topifanclis77/weixiu/commit/5e60bb0280a90fd83670c97a4280ae922e65f3aa 
+安徽电信 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/a64feab97bf167f8e85f54b1ceeaccc20fc79371 
+安徽联通 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/65a8361cfe31a08085086b58eb08b972deb6ce66 
+安徽 IPTV 直播源： https://github.com/jazzmil/shenzhen/commit/f752838a679c5ceed58b2299512c33c5e9798f32 
+陕西地方台直播源下载地址： https://github.com/jd09chimm/chanpin/commit/6e4f6da107f94c2660584b2c095651d3feb0354d 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/3d917e81982370c5b831e8dd387de275e76d0848 
+陕西电信 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/44d7e6fcace23fc4b8c4e9a81aebd31a5f947ac4 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/3eccd930cfd97acd2682591206d5cb40c5934d8b 
+陕西移动 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/c99f6980a74c75a79ed4882a8aa9ebfa3bb1fad9 
+陕西 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/c5d2960c47142a4b68c03fc0d7244064a2fa0655 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/2a318fb08249d9568caeae21eeae0d260b4be2aa 
+甘肃移动 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/7c8410d6fe860329f6ea354f5aea3cd79d67dc5d 
+甘肃 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/ef53adee464db93926f15523c2d20c6fb6533467 
+山西移动组播 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/e9850c129330e9ad51e4f6b63773b15a2ea9009e 
+山西联通组播 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/66e5fbf90a227c2827ba71e4da0e75def15f0cae 
+山西联通 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/1f9f4ef4fd8e336c787b48305c4c6c6cb4ca9858 
+山西 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/e8523d81eaf3c60f854faf0f1ad25cbea4f8d134 
+天津电信组播直播源下载地址： https://github.com/topifanclis77/weixiu/commit/76b303b5fe21556052bb3b077a3677d0d5568f27 
+天津联通组播直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/030a15237ce47689dabc3040eb1502818bafd8d7 
+天津 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/da157c49732a5be09da545f4374780c711298d36 
+上海移动直播源下载地址： https://github.com/jd09chimm/chanpin/commit/700c5fb489671aac914030df688b1498e54636ce 
+上海联通组播直播源下载地址： https://github.com/jazzmil/shenzhen/commit/95df0440e5325b3ec5ef89a6c66b67acb8358a9b 
+上海联通直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/a07212ee991ab9ad2d37868983abf646163ad932 
+上海电信组播直播源下载地址： https://github.com/topifanclis77/weixiu/commit/ef45dd0890f05460facc715c38cc21caf3ea8008 
+上海电信直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/b40e623aefbf82ec6f8de2e4a6712bfec9c31a4b 
+上海 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/382b26e4a65bb00bdea6b58555b900ef8fbc23ed 
+北京移动 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/a4f12e5ea905620744a4dbc417bbcac469f34b5f 
+北京移动组播直播源下载地址： https://github.com/topifanclis77/weixiu/commit/986eb532895bec2abb74c47761bdc302d82580a6 
+北京电信组播 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/b3fd92f3c497a12883a2d20981b6f766910ea205 
+北京联通组播 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/927b00bed6fb24a6d29328ff4adcab5203d0d838 
+北京联通 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/484bc2e2b277fe080ddeffacf0d2d70bdc1c0f4f 
+北京 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/99713b9da171d96b1d6030138c4e11f3ceaecec9 
+部分地区的移动可全网通用： https://github.com/jd09chimm/chanpin/commit/b502f53f7621e4a685cb358634df4855e120c509 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/jazzmil/shenzhen/commit/d0c215c115f786c7661b43a3f68509a3d2d87e4f 
+广播电台下载地址： https://github.com/nsamrassijh2013/remai/commit/ca2f082928d1f87d7dec86171ee650e052a0dddd 
+国内景区直播源下载地址： https://github.com/jd09chimm/chanpin/commit/c7ab3a4e652f5b438aa89e190ca240a362a4f65d 
+轮播华数黑莓下载地址： https://github.com/topifanclis77/weixiu/commit/8b26fef5970bbe7a4521a03f6b4d4ad79ea3a462 
+台湾香港澳门电视台直播源下载地址： https://github.com/jazzmil/shenzhen/commit/6ccf0404078dc98aa35964cac2ac04bf8f86b1a5 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/nsamrassijh2013/remai/commit/76f762105296c9fa735b3bc1ce07b2d606d5eb37 
+国外电视台直播源下载地址： https://github.com/jd09chimm/chanpin/commit/4fe6add0f0d6b237f331df5fa95c56b227a07f48 
+卫视地方台安徽农大下载地址： https://github.com/topifanclis77/weixiu/commit/9966bda206b172e853c699df0d28e3ca55be786b 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/nsamrassijh2013/remai/commit/85ed1d67abb3c0b8b54e717aac95d3c3408d0fdd 
+卫视上海源下载地址： https://github.com/jazzmil/shenzhen/commit/70a9a037a9e7d70df99964e4db44d73e71ec12ad 
+卫视重庆广电 下载地址： https://github.com/jd09chimm/chanpin/commit/5744b56becbd5d699e349248769bbca624eb6a55 
+卫视百视 TV 下载地址： https://github.com/topifanclis77/weixiu/commit/5b8cf78be1c9b39ef24558e2a06e2848d270dc76 
+移动 IPv6 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/82231c684223938bbae789676a75e43316206b0a 
+国内电视台 IPv6 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/255e6cac5795572ec0ffbfa2bd27e7cced452515 
+各大卫视、上千个地方台： https://github.com/jd09chimm/chanpin/commit/53f9d01de950ddf91211c2abadc3e7e8bda43bcc 
+国内电视台直播源下载地址： https://github.com/topifanclis77/weixiu/commit/e447d8ee4644e950a716b421d9d217c078f2b119 
+全国可用直播源： https://github.com/nsamrassijh2013/remai/commit/503d5ca59776b4ec3b122f744c3b3d1f4ab88fdd 
+包括完整内容所有已知频道： https://github.com/jazzmil/shenzhen/commit/428a790007f92d3de5e1887d4cac5b7080839b65 
+除成人内容以外的已知频道： https://github.com/jd09chimm/chanpin/commit/9ed3a44e5e67c5d4c871d0603843299b38d1a54e 
+收集来自世界各地公开可用的 IPTV： https://github.com/topifanclis77/weixiu/commit/71935bb75b8b9a7508910493c1e637a92427656e 
+稳定地址： https://github.com/nsamrassijh2013/remai/commit/c9d1e25ad848ce9c652e3ced0f02bb8c79ce95af 
+2026-07-19 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/jazzmil/shenzhen/commit/29f177a2ecd4ffbfe4def08d0d08667fa8e8753a 
+2026-07-19 更新 IPTV 工具： https://github.com/jd09chimm/chanpin/commit/51a477a0852f51056045b9d8f7e48bf4cf4c5b4b 
+2026-07-19 更新世界各地 IPTV 频道： https://github.com/nsamrassijh2013/remai/commit/9de90a5eff5c1ee49c6b8a84a6cab492c5efb27b 
+2026-07-19 更新全国可用直播源： https://github.com/topifanclis77/weixiu/commit/eb73fc5d8a3058ca6ae5dab8dfcfc09b445bf3f9 
+新增各地运营商的 IPTV 地址： https://github.com/jazzmil/shenzhen/commit/3e0e7503e4ee95f5512b53e40df3673e03b2b9db 
+插件推荐： https://github.com/jd09chimm/chanpin/commit/624b3789c91270b12cd93fc31963a684f56bdafb 
+视频教程增加： https://github.com/nsamrassijh2013/remai/commit/d6d3feed2255e4963396bd362cc72c76a3d1a786 
+咪咕源失效： https://github.com/topifanclis77/weixiu/commit/d2be570d5db72105623259515a4184af029b94da 
+2026-07-19 更新各地运营商 IPTV 直播源： https://github.com/jazzmil/shenzhen/commit/96ac2f0c64640b53724761f0c4515e365c66b039 
+2026-07-19 更新台湾香港海外直播源： https://github.com/jd09chimm/chanpin/commit/69ba9d25cf2f21d555c38b36de592dfa9cc8b576 
+新增辽宁广电直播源： https://github.com/nsamrassijh2013/remai/commit/7408f9dad80b91748a3dfa2380b7f77bd961c145 
+新增江西广电直播源： https://github.com/topifanclis77/weixiu/commit/cf38dabeeecc60867bc4ebfe5e253021632b51e4 
+新增湖北广电直播源： https://github.com/jd09chimm/chanpin/commit/43ca869bdd5269867b1023773fae61f188e74e68 
+新增中国广电 cctv + 卫视直播源： https://github.com/jazzmil/shenzhen/commit/a3316e6902b4f30a60b86873cb209c7b219523c9 
+新增辽宁电信 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/2e7872cc0b194e00a7f6d56a045ce969034529b3 
+2026-07-19 更新台湾香港海外直播源： https://github.com/topifanclis77/weixiu/commit/35a8c343de721c75e9bcc62541f77f0fc9559fbb 
+新增辽宁移动直播源： https://github.com/jazzmil/shenzhen/commit/8944f890868c414f728844db66aea032a5ce3f10 
+新增浙江杭州华数 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/9f138f232723d3b031bbeaf1559ec4b446767fa5 
+新增广东联通 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/375d75f1c207993a0ce33c832b4006b4b44ae087 
+新增四川广电 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/deef45dbd60b2a89cd9bdaf62c446a1dc39aa551 
+新增云南电信 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/b948e36b5f007e745cb34957a875ca8307fff6e5 
+2026-07-19 更新国内电视台直播源： https://github.com/jazzmil/shenzhen/commit/5f3582c6ee4612a2068eb330fec51de7d6b3422d 
+新增福建电信 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/712d6adb81a6a10216d456e47a2d975fccb97ae4 
+新增天途云 CCTV + 卫视： https://github.com/topifanclis77/weixiu/commit/62c2a6e3d204053e0bc6c142542507a783a93638 
+新增腾讯云 CCTV + 卫视： https://github.com/topifanclis77/weixiu/commit/d181a6058512b372205bbf29faaefd5b814faa91 
+新增 CCTV 付费频道直播源： https://github.com/nsamrassijh2013/remai/commit/2384b9418ec8385f1cec35edb3cfe55377ef0771 
+新增广播电台： https://github.com/jd09chimm/chanpin/commit/b32e5722fcc7f8e65e2666b0f3edf1e4034dca5e 
+2026-07-19 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/jazzmil/shenzhen/commit/caa95cc2883a60b619521d26e49a986cabd1ac37 
+2026-07-19 更新 台湾香港海外直播源： https://github.com/jd09chimm/chanpin/commit/1ed5970727fc369333335640f55123a403c47045 
+2026-07-19 更新 国内电视台直播源： https://github.com/topifanclis77/weixiu/commit/f8edb8ee1f55c94307dc1039c5afc1a98551392f 
+国家直播源： https://github.com/nsamrassijh2013/remai/commit/ff866def8428f37be3a0734bafc3cc06b432f12d 
+直播源： https://github.com/topifanclis77/weixiu/commit/2f9febd8baebb6a285c469f26909edaf6a8a077a 
+影视剧场： https://github.com/jazzmil/shenzhen/commit/c8458be38114de0473ac985416d1e592a173f6b3 
+台湾香港澳门： https://github.com/jd09chimm/chanpin/commit/9ab392dfb6c411d297a663b077b2015d9d607ec7 
+国外电视台： https://github.com/nsamrassijh2013/remai/commit/fe65b45a0ee99f5a98d8ab3f05105c4a18669670 
+国内电视台： https://github.com/topifanclis77/weixiu/commit/a48685cc1dd3c5a590643fc2dc99a841091e8672 
+更早期 2026-07-19 更新： https://github.com/jazzmil/shenzhen/commit/a1af952dda2eb46ccb0d7aa5f0dc4e0f565a2c8d 
+各地运营商 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/9c1edc044ed5b02d9ab2a3e8107d1705e274880d 
+全国可用直播源： https://github.com/nsamrassijh2013/remai/commit/a46760f001ef0fe69ea560efd99bb6f449defcb5 
+2026-07-19 更新： https://github.com/topifanclis77/weixiu/commit/cafd42dac03683ea16d1100d16aa8481e3030509 
+赞助者： https://github.com/jazzmil/shenzhen/commit/3e6ca445b954ca10ab5169e2b3a55aa12ea5c4f9 
+文章： https://github.com/jd09chimm/chanpin/commit/ac8a5932633830175e317af86911c769f708780f 
+视频教程： https://github.com/nsamrassijh2013/remai/commit/bc4987f18bb7e70a0976245e6bbd328ca80e10e1 
+插件： https://github.com/jazzmil/shenzhen/commit/8d4341be08c51ac39dd22a546054c826614f7b41 
+工具： https://github.com/jd09chimm/chanpin/commit/c9af0079ff9ae582aa762b3bc4aaabe7a232b2cc 
+URL： https://github.com/topifanclis77/weixiu/commit/34cafc29c605e538745ca57e2deadbdec14b91f6 
+目录： https://github.com/nsamrassijh2013/remai/commit/7b4ce88763c72af9d7d16622aef19f0481e640ab 
+喀麦隆直播电视频道： https://github.com/jd09chimm/chanpin/commit/53ccf642d374c5387ca6ead9da47516e239e9a3c 
+阿富汗直播电视频道： https://github.com/jazzmil/shenzhen/commit/978ad5726b257e8d9de98b08fefd4982644ca752 
+海地的直播频道： https://github.com/topifanclis77/weixiu/commit/7a3aab272c8baffd197116a4ed3f77a0189490d2 
+高棉直播和泰国电视，电影和电视剧： https://github.com/nsamrassijh2013/remai/commit/d69c08aead47f9162eb8ced3b2a0c88810853fe2 
+厄瓜多尔直播频道： https://github.com/jazzmil/shenzhen/commit/792e9dfad391eee7efc1966808a4639746de9bbb 
+玻利维亚直播频道： https://github.com/jd09chimm/chanpin/commit/dbc9c3a189f9989f6f0f516b98ee7b1bfcdfc378 
+萨尔瓦多直播频道： https://github.com/topifanclis77/weixiu/commit/21c7d48f9b66936a09f5d90061d82e4ed76e625f 
+危地马拉直播频道： https://github.com/nsamrassijh2013/remai/commit/4c946488ac3f56c3f41509ba737bc1ad3aaa11da 
+洪都拉斯直播频道： https://github.com/jazzmil/shenzhen/commit/36d8bc29c14b0391dc0a35991799a6d9c51e024f 
+多米尼加共和国直播频道： https://github.com/jd09chimm/chanpin/commit/50fa8a1e7c91a710a63abacdf61d1b33404e5862 
+哥斯达黎加直播频道： https://github.com/topifanclis77/weixiu/commit/009fccd875b3bc5b01f4089c66e267a3b89b8961 
+来自世界各地的个电视频道和个摄像机： https://github.com/jazzmil/shenzhen/commit/e7e2c3afe24c0f5ad4fef2c3e266cb858635de63 
+免费数据库： https://github.com/nsamrassijh2013/remai/commit/7e700f22ea123ab9e71d1b14ad7c6e4457edd556 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/jd09chimm/chanpin/commit/67859bc4c429af84e073f2d60d309f2bc594b2f2 
+超过个国家地区的个高清频道和： https://github.com/topifanclis77/weixiu/commit/846d067dae177df6600cf70f91bb5d98ffce2e55 
+超过个直播电视频道影视节目： https://github.com/jazzmil/shenzhen/commit/b889aae3fbe42f796e421d2d13e3b73769629d62 
+提供商列表： https://github.com/nsamrassijh2013/remai/commit/93394826fd7ab3f080280231530d9b30fc753827 
+提供者： https://github.com/jd09chimm/chanpin/commit/be2dbc64ee1856bc44242f1f776a2430c764349b 
+客户端服务器媒体播放器： https://github.com/topifanclis77/weixiu/commit/844d8e3cf57707ff0e0b36f84e349aa20970e2da 
+支持播放列表文件： https://github.com/jazzmil/shenzhen/commit/1b10c268451179bef1e4e36329cb8feb3bb27947 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/nsamrassijh2013/remai/commit/5a125d5bdbf49f0264aff1a7136f600d4f5b3817 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/jd09chimm/chanpin/commit/33e576fb3a8713c3571bb4e7f2a51cff7b45cad6 
+点 即可： https://github.com/topifanclis77/weixiu/commit/93018a44601d72012ec25d8eacc838bf6127bd91 
+第三行不用管： https://github.com/nsamrassijh2013/remai/commit/1b0dd099f7a345726275019a33974144090452b2 
+第二行输入上面给你的地址： https://github.com/topifanclis77/weixiu/commit/a616e97da754eee822615efce9b96c7775824153 
+第一行随意输入一个名字： https://github.com/jd09chimm/chanpin/commit/95c5ed0484ee9c69411ef96968c4faefe280b51a 
+选择 远程播放列表文件： https://github.com/jazzmil/shenzhen/commit/e469952ae7286984f1f8dae0cfe8ffa5a4027cae 
+打开 点击 号： https://github.com/jd09chimm/chanpin/commit/e7f306d66b4274e3f8755ca37e78d89640e62519 
+食用指南： https://github.com/nsamrassijh2013/remai/commit/bdfb73dc2a700e1999b38b23ee3c724a81cee1a3 
+适用于 macOS 的现代媒体播放器： https://github.com/topifanclis77/weixiu/commit/c247fee3ac0d1c2d12b5e062d18ea268f3e749fc 
+直播电视和广播客户端插件： https://github.com/jazzmil/shenzhen/commit/5e269b654360df8b17be3fb4eed40838ec395502 
+具有库支持的免费跨平台媒体播放器： https://github.com/jd09chimm/chanpin/commit/da87efd306d083d59f65c756f967e112f0d9e519 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/nsamrassijh2013/remai/commit/f999b2318ccdbcff7ee4be88c305b8cb17899152 
+支持 IPTV 流的应用程序： https://github.com/jazzmil/shenzhen/commit/6c0979fb40d0c7555c32b05903d27da2441848b7 
+工具： https://github.com/nsamrassijh2013/remai/commit/affd523065d1acd0e8b249c58124eeb90c039e56 
+轮播华数求索爱奇艺 2026-07-19 更新： https://github.com/jd09chimm/chanpin/commit/fecdfd27742cfeba603174a118877396b515ba2d 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/topifanclis77/weixiu/commit/ae2dfa6ee7668d0052f63f9557f82113a7ec23ab 
+台湾香港海外直播源 2026-07-19 更新： https://github.com/jazzmil/shenzhen/commit/27ea34a29a94319ebbc9b7fc2bcc1a18fdc51ef5 
+各大卫视、上千个地方台： https://github.com/nsamrassijh2013/remai/commit/1eea558b0fff103da1ab2a844bc33a7b35cbe196 
+国内电视台直播源 2026-07-19 更新： https://github.com/jd09chimm/chanpin/commit/36a1c32290c6410f28d3dee444ec1bee426e6bb7 
+卫视腾讯云： https://github.com/topifanclis77/weixiu/commit/13e07fcbf77a43dcf48e9a3accb2a93406e9d105 
+卫视平顶山学院教育网： https://github.com/jazzmil/shenzhen/commit/b33e26dfb0474ea03fc73db026354bd3de5f9c0b 
+卫视天途云： https://github.com/nsamrassijh2013/remai/commit/256765ce034a1b30b8994c8b5340dea56a7fe5df 
+卫视地方台安徽农大： https://github.com/jd09chimm/chanpin/commit/9bc0822d616b429404edbfb24f14d547eaf6835a 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/topifanclis77/weixiu/commit/57c5b150542b641d459420de380b073901be3537 
+央视卫视广西移动直播源： https://github.com/jazzmil/shenzhen/commit/4035ee60b34951c8892390ebf759e99f005ba0ac 
+付费频道直播源： https://github.com/nsamrassijh2013/remai/commit/1c8241d239be96f94f7e5bf44b88969a692cbd61 
+国家直播源多个全部有效： https://github.com/jd09chimm/chanpin/commit/03d7cd4c5abd785b8e03eb17aaba62a08688ea00 
+直播源全部有效： https://github.com/topifanclis77/weixiu/commit/8b1f85369bf800f2824716a7b81d7698ec09260e 
+全部有效： https://github.com/jazzmil/shenzhen/commit/6c75b0aeafec3182eafd36dc5fb53d03e71e8f45 
+直播源全部有效老电脑别用： https://github.com/nsamrassijh2013/remai/commit/fc5332a54cc23af7187b458f389d5e92639bcf7e 
+影视剧场全部流畅： https://github.com/jd09chimm/chanpin/commit/e216e1478fb2342fab549f38687fce4f1d23ae32 
+全部可用： https://github.com/jazzmil/shenzhen/commit/96ac9d0bf6031ebc6b61e78615bbce9bcd56e69a 
+我的播放源： https://github.com/topifanclis77/weixiu/commit/4b1f1d23b15f127ca8608d052ea9e1ac5df7c3d0 
+其他直播源 不确定有效性： https://github.com/nsamrassijh2013/remai/commit/4488bae00ca888ac0775e62a85029234bbb3c49e 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/485fb2705e056f5ab674c8334a151baa390b10db 
+新疆 IPTV 直播源： https://github.com/jazzmil/shenzhen/commit/466e1cced65cb3b11c8933b8a109c340a903de4d 
+内蒙古联通 udp 组播下载地址： https://github.com/jd09chimm/chanpin/commit/f7b3895ec00581f60ba4c10bd022f488d2211101 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/b472c9905dcd6919ecca1bce9d1851f171a6b982 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/b9b2aa07fdc501a4fe2bfd5a288296c05c021401 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/5aa8d683fe6d3038bf063d141c4bd5eb15586774 
+内蒙古 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/d64ed0d66a188730d8fcf53ab225a167ffa8bb14 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/eac2eebc299686fe781950d857fac906f1622260 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/4e6ddbbc3687ee5dcf89de23ffb447682d36dad8 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/f605e0025dd1b036d51b35cbebb7c5aabc4c6f98 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/270610ba64e312f46ae707e707c3729669ab141f 
+黑龙江 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/274386ad173a7cd9f5ac9c4c315df3e0ac22eb04 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/3fc3912b9e9219caaf77adc3629241a0909fe322 
+吉林 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/fd3ee9952fc9696fa13230335dd0546a9ed1b799 
+辽宁移动直播源下载地址： https://github.com/jd09chimm/chanpin/commit/4d599e5c34c7a03b13d8e7f7806b98008584ef78 
+辽宁电信 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/a557f10be4466b68742ed3ea01ff2bfb8f4b6a80 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/jazzmil/shenzhen/commit/dfc31b1e4b12bc954673c812a0bb8497658b4281 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/003ed86c4f49abc19e91c3b0a519e5e109185b93 
+辽宁联通 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/3df780051e5c5d674f10f7140f57f84090fa8622 
+辽宁 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/c15a7dcc6fb82a16c3a999e35a0138f99bb8db86 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/jazzmil/shenzhen/commit/f9adefb85cf33d452f193dfa004265b979582c98 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/cec2495234067e61dccad6a75a18fcbe1fb5b765 
+浙江联通 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/0d0ca36ed7fc21e7b8594ae2c53f14db47b18a5a 
+浙江移动 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/364d5f183dd7a71af7a361ec8923f3ac189ff389 
+浙江 IPTV 直播源： https://github.com/topifanclis77/weixiu/commit/22a4fa5de167ae284bbebbfa9c78c3190b08f26d 
+江西联通 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/f1f9381f4cdfdae3b51d9ba849d843d7a3d4abe8 
+江西电信组播 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/b725c5e70ea5831a4dbdf83f3f0ff5d26e0e55b4 
+江西电信 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/b9d30bbe6bcca8a41ab100f0683458b8ba3483f3 
+江西移动 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/e84ce7ab3607b977bbe6521c8e467339ed01a83a 
+江西 IPTV 直播源： https://github.com/nsamrassijh2013/remai/commit/cd669f6f66c4327a1e146028f51a18712b9157c5 
+江苏移动 IPTV 直播源下载地址： https://github.com/jd09chimm/chanpin/commit/894a9b92f9943fc3f637290707d9b8f95d75b2eb 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/614033a1013b8e728251811e919d918a1bfced08 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/8ee71dd89dae5479bb4cc6fe2b3d62f224f95681 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/32c35a3712a4f51a9aa37e581edf5c25db074424 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/afee16b449d6c59158409902e20ebe6c3aaca6df 
+江苏电信 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/fd0e8766883dd3080b9e1fdeef06ac3507ac10fd 
+江苏 IPTV 直播源： https://github.com/jd09chimm/chanpin/commit/289c3bee760e70d5fc0db9886f9501aeecfd2381 
+安徽广电 IPTV 直播源下载地址： https://github.com/nsamrassijh2013/remai/commit/5aed3edbe4c2dae698af354a6fe12c63ddc087a3 
+海南电信组播 IPTV 直播源下载地址： https://github.com/jazzmil/shenzhen/commit/c1e940b7df15ceca4ad424887cbd25645fda4015 
+海南联通组播 IPTV 直播源下载地址： https://github.com/topifanclis77/weixiu/commit/94c1191e3634291db73a5c66b80a6c980b834d8c 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月19日22时56分26秒
+来源：https://github.com/jd09chimm/chanpin/commit/ae0f935f3b67146aaa92fcef0eb0553440fe811b 
+来源：https://github.com/nsamrassijh2013/remai/commit/35e036a1103e1704b1f743722c22ec4635119037 
+来源：https://github.com/topifanclis77/weixiu/commit/83a14d9ec7384ee10c247c63caddb9fdd2f4c0ea 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月19日22时56分26秒
